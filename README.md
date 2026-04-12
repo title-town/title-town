@@ -37,3 +37,5 @@
 [@chick-habit](https://github.com/chick-habit) : ponytown's ᴍᴜʀᴅᴏᴄ
 
 [@thatroyalbeast](https://github.com/thatroyalbeast) : ponytown's ʙᴇᴀꜱᴛ
+
+[@sour-lim](https://github.com/sour-lim) : ponytown's ᴛʀɪxɪᴇ ʟᴜʟᴀᴍᴏᴏɴ
