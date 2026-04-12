@@ -9,5 +9,11 @@
 
 
 <p align="center"><img width="220" height="87" alt="image" src="https://github.com/user-attachments/assets/b6e6a14d-5f1d-48a1-a5bd-e34af183fb39" />
-
-
+  
+[@bigguykoi](https://github.com/Bigguykoi) : ponytown's ᴛᴏɴʏ ꜱᴛᴀʀᴋ
+[@qnakin](https://github.com/qnakin) : ponytown's ᴀɴᴀᴋɪɴ ꜱᴋʏᴡᴀʟᴋᴇʀ
+[@zonale](https://github.com/zonale) : ponytown's ʜᴇʀʙ ᴄᴏᴏᴋɪᴇ
+[@meowsael](https://github.com/meowsael) : ponytown's ʟɪᴄᴏʀɪᴄᴇ ᴄᴏᴏᴋɪᴇ
+[@xolariis](https://github.com/xolariis) : ponytown's ʙᴇʀᴅʟʏ
+[@dumbasseel](https://github.com/dumbasseel) : ponytown's ᴇᴇʟ ᴄᴏᴏᴋɪᴇ
+[@strin-g](https://github.com/strin-g) : ponytown's ꜱᴛʀɪɴɢ ɢᴜᴍᴍʏ ᴄᴏᴏᴋɪᴇ
