@@ -26,6 +26,8 @@
 
 [@meowsael](https://github.com/meowsael) : ponytown's ʟɪᴄᴏʀɪᴄᴇ ᴄᴏᴏᴋɪᴇ
 
+[@sparkleing](https://github.com/sparkeling) : ponytown's ꜱᴘᴀʀᴋʟɪɴɢ ᴄᴏᴏᴋɪᴇ
+
 [@zonale](https://github.com/zonale) : ponytown's ʜᴇʀʙ ᴄᴏᴏᴋɪᴇ
 
 [@decolita](https://github.com/decolita) : ponytown's ᴄʜɪʟʟɪ ᴘᴇᴘᴘᴇʀ ᴄᴏᴏᴋɪᴇ
