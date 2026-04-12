@@ -1,3 +1,5 @@
+<p align="center"><img width="90" src="https://komarev.com/ghpvc/?username=title-town&label=𝓁ove𝓁ies&color=ffebef">
+
 <p align="center"><img width="400" height="207" alt="image" src="https://github.com/user-attachments/assets/6df662f1-1e43-4d03-9655-c446d4bdc625" />
 
 <p align="center">$\Large{\textsf{Ꮒello!}}$  
