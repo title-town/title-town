@@ -28,6 +28,8 @@
 
 [@zonale](https://github.com/zonale) : ponytown's ʜᴇʀʙ ᴄᴏᴏᴋɪᴇ
 
+[@decolita](https://github.com/decolita) : ponytown's ᴄʜɪʟʟɪ ᴘᴇᴘᴘᴇʀ ᴄᴏᴏᴋɪᴇ
+
 [@dumbasseel](https://github.com/dumbasseel) : ponytown's ᴇᴇʟ ᴄᴏᴏᴋɪᴇ
 
 [@strin-g](https://github.com/strin-g) : ponytown's ꜱᴛʀɪɴɢ ɢᴜᴍᴍʏ ᴄᴏᴏᴋɪᴇ
