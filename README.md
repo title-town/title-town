@@ -16,13 +16,19 @@
 
 [@qnakin](https://github.com/qnakin) : ponytown's ᴀɴᴀᴋɪɴ ꜱᴋʏᴡᴀʟᴋᴇʀ
 
-[@zonale](https://github.com/zonale) : ponytown's ʜᴇʀʙ ᴄᴏᴏᴋɪᴇ
+[@mlgkent](https://github.com/mlgkent) : ponytown's ᴊᴏɴ ᴋᴇɴᴛ
+
+[@boyrituals](https://github.com/boyrituals) : ponytown's ᴊᴀᴄᴋ ᴍᴇʀʀɪᴅᴇᴡ
+
+[@xolariis](https://github.com/xolariis) : ponytown's ʙᴇʀᴅʟʏ
 
 [@meowsael](https://github.com/meowsael) : ponytown's ʟɪᴄᴏʀɪᴄᴇ ᴄᴏᴏᴋɪᴇ
 
-[@xolariis](https://github.com/xolariis) : ponytown's ʙᴇʀᴅʟʏ
+[@zonale](https://github.com/zonale) : ponytown's ʜᴇʀʙ ᴄᴏᴏᴋɪᴇ
 
 [@dumbasseel](https://github.com/dumbasseel) : ponytown's ᴇᴇʟ ᴄᴏᴏᴋɪᴇ
 
 [@strin-g](https://github.com/strin-g) : ponytown's ꜱᴛʀɪɴɢ ɢᴜᴍᴍʏ ᴄᴏᴏᴋɪᴇ
+
+[@chick-habit](https://github.com/chick-habit) : ponytown's ᴍᴜʀᴅᴏᴄ
 
