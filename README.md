@@ -41,3 +41,6 @@
 [@sour-lim](https://github.com/sour-lim) : ponytown's ᴛʀɪxɪᴇ ʟᴜʟᴀᴍᴏᴏɴ
 
 [@vanyamisa](https://github.com/vanyamisa) : ponytown's ᴍɪꜱᴀ ᴀᴍᴀɴᴇ
+
+[@sylv3stre](https://github.com/sylv3stre) : ponytown's ꜱʏʟᴠᴇꜱᴛʀᴇ
+
