@@ -18,6 +18,8 @@
 
 [@mlgkent](https://github.com/mlgkent) : ponytown's ᴊᴏɴ ᴋᴇɴᴛ
 
+[@orthowo](https://github.com/orthowo) : ponytown's ᴏʀᴛʜᴏ ꜱʜʀᴏᴜᴅ
+
 [@boyrituals](https://github.com/boyrituals) : ponytown's ᴊᴀᴄᴋ ᴍᴇʀʀɪᴅᴇᴡ
 
 [@xolariis](https://github.com/xolariis) : ponytown's ʙᴇʀᴅʟʏ
