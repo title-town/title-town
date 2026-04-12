@@ -2,7 +2,7 @@
 
 <p align="center">$\Large{\textsf{Ꮒello!}}$  
   
-<p align="center">welcome to **title-town**! this is only meant and made for fun and enjoyment, and it is to show the beautiful cosplay skins and recognisable githubs around ponytown!
+<p align="center">welcome to title-town! this is only meant and made for fun and enjoyment, and it is to show the beautiful cosplay skins and recognisable githubs around ponytown!
   
 <p align="center">$\tiny{\textsf{this github was inspired by @pt-awards and @prettyponycollector!!}}$
 
