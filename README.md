@@ -44,5 +44,5 @@
 
 [@vanyamisa](https://github.com/vanyamisa) : ponytown's ᴍɪꜱᴀ ᴀᴍᴀɴᴇ
 
-[@sylv3stre](https://github.com/sylv3stre) : ponytown's ꜱʏʟᴠᴇꜱᴛʀᴇ
+[@sylv3stre](https://github.com/syIv3stre) : ponytown's ꜱʏʟᴠᴇꜱᴛʀᴇ
 
