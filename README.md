@@ -14,6 +14,8 @@
   
 [@bigguykoi](https://github.com/Bigguykoi) : ponytown's ᴛᴏɴʏ ꜱᴛᴀʀᴋ
 
+[@sorbetflakes](https://github.com/sorbetflakes) : ponytown's ɪɴᴠɪɴᴄɪʙʟᴇ
+
 [@qnakin](https://github.com/qnakin) : ponytown's ᴀɴᴀᴋɪɴ ꜱᴋʏᴡᴀʟᴋᴇʀ
 
 [@mlgkent](https://github.com/mlgkent) : ponytown's ᴊᴏɴ ᴋᴇɴᴛ
@@ -36,7 +38,7 @@
 
 [@strin-g](https://github.com/strin-g) : ponytown's ꜱᴛʀɪɴɢ ɢᴜᴍᴍʏ ᴄᴏᴏᴋɪᴇ
 
-[@chick-habit](https://github.com/chick-habit) : ponytown's ᴍᴜʀᴅᴏᴄ
+[@chick-habit](https://github.com/chick-habit) : ponytown's ᴍᴜʀᴅᴏᴄ ɴɪᴄᴄᴀʟꜱ
 
 [@thatroyalbeast](https://github.com/thatroyalbeast) : ponytown's ʙᴇᴀꜱᴛ
 
@@ -45,4 +47,13 @@
 [@vanyamisa](https://github.com/vanyamisa) : ponytown's ᴍɪꜱᴀ ᴀᴍᴀɴᴇ
 
 [@sylv3stre](https://github.com/syIv3stre) : ponytown's ꜱʏʟᴠᴇꜱᴛʀᴇ
+
+[@eversleeping-town](https://github.com/eversleeping-town) : ponytown's ᴇʟɪᴢᴀʙᴇᴛʜ ᴀꜰᴛᴏɴ
+
+[@yurislop](https://github.com/yurislop) : ponytown's ɢʀɪᴀɴ
+
+[@moiemon](https://github.com/moiemon) : ponytown's ᴀᴍʏ ʀᴏꜱᴇ
+
+[@vampfem](https://github.com/vampfem) : ponytown's ʟᴅꜱʜᴀᴅᴏᴡʟᴀᴅʏ
+
 
