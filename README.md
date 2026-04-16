@@ -54,6 +54,13 @@
 
 [@moiemon](https://github.com/moiemon) : ponytown's ᴀᴍʏ ʀᴏꜱᴇ
 
+[@lazikoly](https://github.com/lazikoly) : ponytown's ꜱʜᴀᴅᴏᴡ ᴛʜᴇ ʜᴇᴅɢᴇʜᴏɢ
+
+[@sxshaae](https://github.com/sxshaae) : ponytown's ꜱᴏɴɪᴄ ᴛʜᴇ ʜᴇᴅɢᴇʜᴏɢ
+
+[@real-sonic](https://github.com/real-sonic) : ponytown's ᴍᴇᴛᴀʟ ꜱᴏɴɪᴄ
+
 [@vampfem](https://github.com/vampfem) : ponytown's ʟᴅꜱʜᴀᴅᴏᴡʟᴀᴅʏ
 
+[@desireddreams](https://github.com/desireddreams) : ponytown's ʙᴏʀɪꜱ ᴘᴀᴠɪʟᴏᴠꜱᴋʏ
 
