@@ -62,5 +62,9 @@
 
 [@vampfem](https://github.com/vampfem) : ponytown's ʟᴅꜱʜᴀᴅᴏᴡʟᴀᴅʏ
 
-[@desireddreams](https://github.com/desireddreams) : ponytown's ʙᴏʀɪꜱ ᴘᴀᴠɪʟᴏᴠꜱᴋʏ
+[@nameless-boy](https://github.com/nameless-boy) : ponytown's ᴅᴀᴢᴀɪ
+
+[@geo-metrical](https://github.com/geo-metrical) : ponytown's ʀᴏʙʟᴏx ɴᴏᴏʙ
+
+
 
