@@ -64,7 +64,15 @@
 
 [@nameless-boy](https://github.com/nameless-boy) : ponytown's ᴅᴀᴢᴀɪ
 
+[@5poke](https://github.com/5poke) : ponytown's ᴅᴇʀᴀᴘᴄʜᴜ
+
+[@chickenroulette](https://github.com/chickenroulette) : ponytown's ꜱʜᴇᴅʟᴇᴛꜱᴋʏ
+
 [@geo-metrical](https://github.com/geo-metrical) : ponytown's ʀᴏʙʟᴏx ɴᴏᴏʙ
+
+[@chevyimpalas67](https://github.com/chevyimpalas67) : ponytown's ᴅᴇᴀɴ ᴡɪɴᴄʜᴇꜱᴛᴇʀ
+
+
 
 
 
