@@ -72,6 +72,13 @@
 
 [@chevyimpalas67](https://github.com/chevyimpalas67) : ponytown's ᴅᴇᴀɴ ᴡɪɴᴄʜᴇꜱᴛᴇʀ
 
+[@jabberslop](https://github.com/jabberslop) : ponytown's ᴊᴀʙʙᴇʀ ᴡᴏɴɢᴇʀ
+
+[@monique-gibeau](https://github.com/monique-gibeau) : ponytown's ɴᴏᴇʟ ɢʀᴜʙᴇʀ
+
+[@Ironspurs](https://github.com/Ironspurs) : ponytown's ᴊᴀᴄᴋ ᴍᴀʀꜱᴛᴏɴ
+
+[@gambleghost](https://github.com/gambleghost) : ponytown's ᴄᴏɴɴɪᴇ ʙᴏᴏʟʏɴꜱᴋɪ
 
 
 
