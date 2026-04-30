@@ -52,6 +52,10 @@
 
 [@yurislop](https://github.com/yurislop) : ponytown's ɢʀɪᴀɴ
 
+[@piehiker](https://github.com/piehiker) : ponytown's ᴢᴇ
+
+[@loonaclows](https://github.com/loonaclows) : ponytown's ʟᴏᴏɴᴀᴄ
+
 [@moiemon](https://github.com/moiemon) : ponytown's ᴀᴍʏ ʀᴏꜱᴇ
 
 [@lazikoly](https://github.com/lazikoly) : ponytown's ꜱʜᴀᴅᴏᴡ ᴛʜᴇ ʜᴇᴅɢᴇʜᴏɢ
@@ -80,6 +84,8 @@
 
 [@gambleghost](https://github.com/gambleghost) : ponytown's ᴄᴏɴɴɪᴇ ʙᴏᴏʟʏɴꜱᴋɪ
 
+[@yvoisen](https://github.com/yvoisen) : ponytown's ɢʟɪꜱᴛᴇɴ ᴛʜᴇ ᴍɪʀʀᴏʀ
 
+[@ethereal-fatality](https://github.com/ethereal-fatality) : ponytown's ​🇭​​🇦​​🇷​​🇱​​🇪​​🇶​​🇺​​🇮​​🇳
 
-
+[@callousTurntech](https://github.com/callousTurntech) : ponytown's ᴅᴀᴠᴇ ꜱᴛʀɪᴅᴇʀ
