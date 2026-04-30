@@ -86,6 +86,6 @@
 
 [@yvoisen](https://github.com/yvoisen) : ponytown's ɢʟɪꜱᴛᴇɴ ᴛʜᴇ ᴍɪʀʀᴏʀ
 
-[@ethereal-fatality](https://github.com/ethereal-fatality) : ponytown's ​🇭​​🇦​​🇷​​🇱​​🇪​​🇶​​🇺​​🇮​​🇳
+[@ethereal-fatality](https://github.com/ethereal-fatality) : ponytown's ​ʜᴀʀʟᴇQᴜɪɴ
 
 [@callousTurntech](https://github.com/callousTurntech) : ponytown's ᴅᴀᴠᴇ ꜱᴛʀɪᴅᴇʀ
