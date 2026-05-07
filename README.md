@@ -60,8 +60,6 @@
 
 [@jude-low](https://github.com/jude-low) : ponytown's ᴊᴜᴅᴇʟᴏᴡ
 
-[@flyuixons](https://github.com/flyuixons) : ponytown's ꜱʜᴀʀᴘɴᴇꜱꜱ
-
 [@loonaclows](https://github.com/loonaclows) : ponytown's ʟᴏᴏɴᴀᴄ
 
 [@moiemon](https://github.com/moiemon) : ponytown's ᴀᴍʏ ʀᴏꜱᴇ
