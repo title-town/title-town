@@ -46,13 +46,21 @@
 
 [@vanyamisa](https://github.com/vanyamisa) : ponytown's ᴍɪꜱᴀ ᴀᴍᴀɴᴇ
 
+[@sukunabiood](https://github.com/sukunabiood) : ponytown's ᴍᴇɢᴋᴜɴᴀ
+
 [@sylv3stre](https://github.com/syIv3stre) : ponytown's ꜱʏʟᴠᴇꜱᴛʀᴇ
 
 [@eversleeping-town](https://github.com/eversleeping-town) : ponytown's ᴇʟɪᴢᴀʙᴇᴛʜ ᴀꜰᴛᴏɴ
 
+[@ihasaface-lulz](https://github.com/ihasaface-lulz) : ponytown's ᴅ3ʀʟᴏʀᴅ3
+
 [@yurislop](https://github.com/yurislop) : ponytown's ɢʀɪᴀɴ
 
 [@piehiker](https://github.com/piehiker) : ponytown's ᴢᴇ
+
+[@jude-low](https://github.com/jude-low) : ponytown's ᴊᴜᴅᴇʟᴏᴡ
+
+[@flyuixons](https://github.com/flyuixons) : ponytown's ꜱʜᴀʀᴘɴᴇꜱꜱ
 
 [@loonaclows](https://github.com/loonaclows) : ponytown's ʟᴏᴏɴᴀᴄ
 
@@ -74,6 +82,10 @@
 
 [@geo-metrical](https://github.com/geo-metrical) : ponytown's ʀᴏʙʟᴏx ɴᴏᴏʙ
 
+[@Artfufu](https://github.com/Artfufu) : ponytown's ɴᴏʟɪ
+
+[@slvgz](https://github.com/slvgz) : ponytown's ɪʜᴀꜱᴀꜰᴀᴄᴇʟᴜʟᴢ
+
 [@chevyimpalas67](https://github.com/chevyimpalas67) : ponytown's ᴅᴇᴀɴ ᴡɪɴᴄʜᴇꜱᴛᴇʀ
 
 [@jabberslop](https://github.com/jabberslop) : ponytown's ᴊᴀʙʙᴇʀ ᴡᴏɴɢᴇʀ
@@ -89,3 +101,7 @@
 [@ethereal-fatality](https://github.com/ethereal-fatality) : ponytown's ​ʜᴀʀʟᴇQᴜɪɴ
 
 [@callousTurntech](https://github.com/callousTurntech) : ponytown's ᴅᴀᴠᴇ ꜱᴛʀɪᴅᴇʀ
+
+[@beauty-clown](https://github.com/beauty-clown) : ponytown's ᴛʀɪᴄᴋʏ
+
+[@silly-dotcom](https://github.com/silly-dotcom) : ponytown's ᴏᴘᴘᴇɴʜᴇɪᴍᴇʀ
