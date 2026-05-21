@@ -10,6 +10,8 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤㅤ  [straw](https://titletown.straw.page/)
 
 
+<p align="center">i review requests every sundays!
+
 <p align="center"><img width="220" height="87" alt="image" src="https://github.com/user-attachments/assets/b6e6a14d-5f1d-48a1-a5bd-e34af183fb39" />
   
 [@bigguykoi](https://github.com/Bigguykoi) : ponytown's ᴛᴏɴʏ ꜱᴛᴀʀᴋ
