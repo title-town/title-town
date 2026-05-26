@@ -118,8 +118,6 @@
 
 [@clownpierce3](https://github.com/clownpierce3) : ponytown's ɢᴜᴇꜱᴛ 1337
 
-[@sonnelinoenthusiast](https://github.com/SONNELINOENTHUSIAST) : ponytown's ᴍᴀꜰɪᴏꜱᴏ
-
 [@slvgz](https://github.com/slvgz) : ponytown's ɪʜᴀꜱᴀꜰᴀᴄᴇʟᴜʟᴢ
 
 [@elisxne](https://github.com/elisxne) : ponytown's ɢʀɪᴇꜰᴇʀ
