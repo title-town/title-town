@@ -140,7 +140,7 @@
 
 [@fieldofstrawberries](https://github.com/fieldofstrawberries) : ponytown's ꜱᴘʀᴏᴜᴛ ꜱᴇᴇᴅʟʏ
 
-[@clownzy](https://github.com/clownzy) : ponytown's ʟᴏᴏᴇʏ ᴛʜᴇ ʙᴀʟʟᴏᴏɴ
+[@ciownzy](https://github.com/cIownzy) : ponytown's ʟᴏᴏᴇʏ ᴛʜᴇ ʙᴀʟʟᴏᴏɴ
 
 [@ethereal-fatality](https://github.com/ethereal-fatality) : ponytown's ʜᴀʀʟᴇQᴜɪɴ
 
