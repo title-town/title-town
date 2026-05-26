@@ -22,6 +22,8 @@
 
 [@mlgkent](https://github.com/mlgkent) : ponytown's ᴊᴏɴ ᴋᴇɴᴛ
 
+[@sebvsene](https://github.com/sebvsene) : ponytown's ᴊᴀꜱᴏɴ ᴛᴏᴅᴅ
+
 [@riddledbatz](https://github.com/riddledbatz) : ponytown's ʀɪᴅᴅʟᴇʀ
 
 [@orthowo](https://github.com/orthowo) : ponytown's ᴏʀᴛʜᴏ ꜱʜʀᴏᴜᴅ
@@ -52,7 +54,17 @@
 
 [@vanyamisa](https://github.com/vanyamisa) : ponytown's ᴍɪꜱᴀ ᴀᴍᴀɴᴇ
 
+[@gun-fiend](https://github.com/gun-fiend) : ponytown's ᴀᴋɪ ʜᴀʏᴀᴋᴀᴡᴀ
+
+[@heavenfails](https://github.com/heavenfails) : ponytown's ᴀɴɢᴇʟ ᴅᴇᴠɪʟ
+
+[@iordzuko](https://github.com/iordzuko) : ponytown's ᴢᴜᴋᴏ
+
 [@sukunabiood](https://github.com/sukunabiood) : ponytown's ᴍᴇɢᴋᴜɴᴀ
+
+[@ryomxnsukuna](https://github.com/ryomxnsukuna) : ponytown's ꜱᴜᴋᴜɴᴀ
+
+[@jumperwho](https://github.com/jumperwho) : ponytown's ɴᴀɢɪᴛᴏ ᴋᴏᴍᴀᴇᴅᴀ
 
 [@sylv3stre](https://github.com/syIv3stre) : ponytown's ꜱʏʟᴠᴇꜱᴛʀᴇ
 
@@ -68,9 +80,17 @@
 
 [@olliverzzfailed](https://github.com/olliverzzfailed) : ponytown's ꜰʟᴀᴍᴇꜰʀᴀɢꜱ
 
-[@conexionnn](https://github.com/conexionnn) : ponytown's ꜱʜᴀʀᴘɴᴇꜱꜱ
+[@conexlonn](https://github.com/) : ponytown's ꜱʜᴀʀᴘɴᴇꜱꜱ
 
 [@loonaclows](https://github.com/loonaclows) : ponytown's ʟᴏᴏɴᴀᴄ
+
+[@blindfoldbandits](https://github.com/BlindfoldBandits) : ponytown's ᴍᴀɴᴇᴘᴇᴀʀ
+
+[@yvoisen](https://github.com/yvoisen) : ponytown's ʀᴇɢᴇᴄᴛ
+
+[@witheringheights](https://github.com/witheringheights) : ponytown's ᴀꜱʜꜱᴡᴀɢ
+
+[@hardcoreduo](https://github.com/hardcoreduo) : ponytown's ɴᴜꜰᴜʟɪ
 
 [@moiemon](https://github.com/moiemon) : ponytown's ᴀᴍʏ ʀᴏꜱᴇ
 
@@ -92,7 +112,13 @@
 
 [@geo-metrical](https://github.com/geo-metrical) : ponytown's ʀᴏʙʟᴏx ɴᴏᴏʙ
 
+[@s4wn00bz](https://github.com/s4wn00bz) : ponytown's ꜱᴀᴡ ɴᴏᴏʙ
+
 [@artfufu](https://github.com/Artfufu) : ponytown's ɴᴏʟɪ
+
+[@clownpierce3](https://github.com/clownpierce3) : ponytown's ɢᴜᴇꜱᴛ 1337
+
+[@sonnelinoenthusiast](https://github.com/SONNELINOENTHUSIAST) : ponytown's ᴍᴀꜰɪᴏꜱᴏ
 
 [@slvgz](https://github.com/slvgz) : ponytown's ɪʜᴀꜱᴀꜰᴀᴄᴇʟᴜʟᴢ
 
@@ -112,11 +138,11 @@
 
 [@gambleghost](https://github.com/gambleghost) : ponytown's ᴄᴏɴɴɪᴇ ʙᴏᴏʟʏɴꜱᴋɪ
 
-[@yvoisen](https://github.com/yvoisen) : ponytown's ɢʟɪꜱᴛᴇɴ ᴛʜᴇ ᴍɪʀʀᴏʀ
-
 [@fieldofstrawberries](https://github.com/fieldofstrawberries) : ponytown's ꜱᴘʀᴏᴜᴛ ꜱᴇᴇᴅʟʏ
 
-[@ethereal-fatality](https://github.com/ethereal-fatality) : ponytown's ​ʜᴀʀʟᴇQᴜɪɴ
+[@clownzy](https://github.com/clownzy) : ponytown's ʟᴏᴏᴇʏ ᴛʜᴇ ʙᴀʟʟᴏᴏɴ
+
+[@ethereal-fatality](https://github.com/ethereal-fatality) : ponytown's ʜᴀʀʟᴇQᴜɪɴ
 
 [@computerrtime](https://github.com/computerrtime) : ponytown's ᴅᴀᴠᴇ ꜱᴛʀɪᴅᴇʀ
 
@@ -131,3 +157,21 @@
 [@viimsey](https://github.com/viimsey) : ponytown's ᴠɪᴘᴇʀɪᴏɴ
 
 [@dr-vanta](https://github.com/dr-vanta) : ponytown's ʙᴜɴɴʏx
+
+[@yubelsrevenge](https://github.com/yubelsrevenge) : ponytown's ᴊᴜᴅᴀɪ ʏᴜᴋɪ
+
+[@milliesaxe](https://github.com/milliesaxe) : ponytown's ꜱɪᴇɴɴᴀ ꜱʜᴀᴡ
+
+[@pawnresearch](https://github.com/pawnresearch) : ponytown's ᴛᴀᴍꜱʏ
+
+[@traummannn](https://github.com/traummannn) : ponytown's ᴍɪᴄʜᴀᴇʟ ᴡʜᴇᴇʟᴇʀ
+
+[@sunflowersofinferno](https://github.com/sunflowersofinferno) : ponytown's ꜱʜɪɴɪᴄʜɪ ᴋᴜᴅᴏ
+
+[@rylandsgrace](https://github.com/rylandsgrace) : ponytown's ʀʏʟᴀɴᴅ ɢʀᴀᴄᴇ
+
+[@deceitfuldevil](https://github.com/deceitfuldevil) : ponytown's ᴅᴇᴠɪʟ
+
+[@420biteme](https://github.com/420biteme) : ponytown's ꜱɪʀɪᴜꜱ ʙʟᴀᴄᴋ
+
+
