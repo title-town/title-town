@@ -80,7 +80,7 @@
 
 [@olliverzzfailed](https://github.com/olliverzzfailed) : ponytown's ꜰʟᴀᴍᴇꜰʀᴀɢꜱ
 
-[@conexlonn](https://github.com/) : ponytown's ꜱʜᴀʀᴘɴᴇꜱꜱ
+[@conexlonn](https://github.com/conexlonn) : ponytown's ꜱʜᴀʀᴘɴᴇꜱꜱ
 
 [@loonaclows](https://github.com/loonaclows) : ponytown's ʟᴏᴏɴᴀᴄ
 
