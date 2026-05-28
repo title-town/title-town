@@ -64,7 +64,7 @@
 
 [@ryomxnsukuna](https://github.com/ryomxnsukuna) : ponytown's ꜱᴜᴋᴜɴᴀ
 
-[@jumperwho](https://github.com/jumperwho) : ponytown's ɴᴀɢɪᴛᴏ ᴋᴏᴍᴀᴇᴅᴀ
+[@userimejumpduo](https://github.com/userimejumpduo) : ponytown's ɴᴀɢɪᴛᴏ ᴋᴏᴍᴀᴇᴅᴀ
 
 [@sylv3stre](https://github.com/syIv3stre) : ponytown's ꜱʏʟᴠᴇꜱᴛʀᴇ
 
