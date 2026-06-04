@@ -101,7 +101,7 @@
 
 [@filthco](https://github.com/filthco) : ponytown's ꜱQᴜɪᴅᴅᴏ
 
-[@colorfulmush](https://github.com/molorfulmush) : ponytown's ᴅ3ʀʟᴏʀᴅ3
+[@colorfulmush](https://github.com/colorfulmush) : ponytown's ᴅ3ʀʟᴏʀᴅ3
 
 [@divinemachines](https://github.com/divinemachines) : ponytown's ꜰᴏᴏʟɪꜱʜɢ
 
