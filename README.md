@@ -17,7 +17,7 @@
   
 [@bigguykoi](https://github.com/Bigguykoi) : ponytown's ᴛᴏɴʏ ꜱᴛᴀʀᴋ
 
-[@tekjacket](https://github.com/tekjacket) : ponytown's ​🇯​​🇴​​🇭​​🇳​​🇳​​🇾​ ​🇸​​🇹​​🇴​​🇷​​🇲​
+[@tekjacket](https://github.com/tekjacket) : ponytown's ​ᴊᴏʜɴɴʏ ꜱᴛᴏʀᴍ
 
 [@sorbetflakes](https://github.com/sorbetflakes) : ponytown's ɪɴᴠɪɴᴄɪʙʟᴇ
 
@@ -199,6 +199,6 @@
 
 [@scottishtwinengines](https://github.com/scottishtwinengines) : ponytown's ᴛʜᴏᴍᴀꜱ ᴛʜᴇ ᴛᴀɴᴋ ᴇɴɢɪɴᴇ
 
-[@jackoconneii](https://github.com/jackoconneII) : ponytown's ​🇷​​🇪​​🇲​​🇲​​🇮​​🇨​​🇰​
+[@jackoconneii](https://github.com/jackoconneII) : ponytown's ​ʀᴇᴍᴍɪᴄᴋ​
 
 
