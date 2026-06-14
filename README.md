@@ -143,7 +143,7 @@
 
 [@killerspectrum](https://github.com/killerspectrum) : ponytown's ᴋɪʟʟᴇʀ ꜱᴀɴꜱ
 
-[@kingofhell](https://github.com/kingofhell) : ponytown's ꜱᴀɴᴊɪ
+[@kingofheii](https://github.com/kingofheii) : ponytown's ꜱᴀɴᴊɪ
 
 [@lazikoly](https://github.com/lazikoly) : ponytown's ꜱʜᴀᴅᴏᴡ ᴛʜᴇ ʜᴇᴅɢᴇʜᴏɢ
 
