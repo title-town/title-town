@@ -17,7 +17,7 @@
   
 [@bigguykoi](https://github.com/Bigguykoi) : ponytown's ᴛᴏɴʏ ꜱᴛᴀʀᴋ
 
-[@tekjacket](https://github.com/tekjacket) : ponytown's ​ᴊᴏʜɴɴʏ ꜱᴛᴏʀᴍ
+[@thelasttwilight](https://github.com/thelasttwilight) : ponytown's ​ᴊᴏʜɴɴʏ ꜱᴛᴏʀᴍ
 
 [@sorbetflakes](https://github.com/sorbetflakes) : ponytown's ɪɴᴠɪɴᴄɪʙʟᴇ
 
@@ -68,6 +68,8 @@
 [@ryomxnsukuna](https://github.com/ryomxnsukuna) : ponytown's ꜱᴜᴋᴜɴᴀ
 
 [@nnyanruto](https://github.com/nnyanruto) : ponytown's ɴᴀʀᴜᴛᴏ
+
+[@fuyuis](https://github.com/fuyuis) : ponytown's ᴘᴇʀᴏɴᴀ
 
 [@regoregitatedsacrifice](https://github.com/regoregitatedsacrifice) : ponytown's ᴋᴀᴛꜱᴜᴋɪ ʙᴀᴋᴜɢᴏ
 
@@ -187,13 +189,15 @@
 
 [@420biteme](https://github.com/420biteme) : ponytown's ꜱɪʀɪᴜꜱ ʙʟᴀᴄᴋ
 
+[@princesevvy](https://github.com/princesevvy) : ponytown's ꜱᴇᴠᴇʀᴜꜱ ꜱɴᴀᴘᴇ
+
 [@killerspectrum](https://github.com/killerspectrum) : ponytown's ᴋɪʟʟᴇʀ ꜱᴀɴꜱ
 
 [@jiraiki](https://github.com/jiraiki) : ponytown's ᴄᴏʟᴜᴍʙɪɴᴀ
 
 [@mualani](https://github.com/mualani) : ponytown's ɢᴇʀᴍᴀɴʏ
 
-[@ninathekiiler](https://github.com/ninathekiiler) : ponytown's ɴɪɴᴀ ᴛʜᴇ ᴋɪʟʟᴇʀ
+[@ninatheklr](https://github.com/ninatheklr) : ponytown's ɴɪɴᴀ ᴛʜᴇ ᴋɪʟʟᴇʀ
 
 [@skaggot](https://github.com/skaggot) : ponytown's ᴄʀᴏɴᴀ ɢᴏʀɢᴏɴ
 
