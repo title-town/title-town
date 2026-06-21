@@ -181,7 +181,9 @@
 
 [@kayleighjudas](https://github.com/kayleighjudas) : ponytown's ᴍᴀᴄʜɪɴᴇ ʜᴇʀᴀʟᴅ
 
-[@koraaline](https://github.com/killerspectrum) : ponytown's ᴋɪʟʟᴇʀ ꜱᴀɴꜱ
+[@killerspectrum](https://github.com/killerspectrum) : ponytown's ᴋɪʟʟᴇʀ ꜱᴀɴꜱ
+
+[@koraaline](https://github.com/koraaline) : ponytown's ᴏʙᴇʏ ᴍᴇ! ꜰᴀɴ
 
 [@lazikoly](https://github.com/lazikoly) : ponytown's ꜱʜᴀᴅᴏᴡ ᴛʜᴇ ʜᴇᴅɢᴇʜᴏɢ
 
