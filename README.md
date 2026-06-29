@@ -223,7 +223,7 @@
 
 [@lynxcified](https://github.com/lynxcified) : ponytown's ʙʟᴀᴄᴋ ɴᴏɪʀ
 
-[@malepregnacy](https://github.com/malepregnacy) : ponytown's ꜱᴀᴘᴀʀᴀᴛᴀ
+[@malepregnancy](https://github.com/malepregnancy) : ponytown's ꜱᴀᴘᴀʀᴀᴛᴀ
 
 [@martin-cortis](https://github.com/martin-cortis) : ponytown's ᴍᴀʀᴛɪɴ
 
