@@ -25,7 +25,7 @@
 
 [@aliceinwonderiand](https://github.com/aliceinwonderiand) : ponytown's ᴀʟɪᴄᴇ (ɪɴ ᴡᴏɴᴅᴇʀʟᴀɴᴅ)
 
-[@alnstslop](https://github.com/alnststop) : ponytown's ᴛɪʟʟ
+[@alnstslop](https://github.com/alnstslop) : ponytown's ᴛɪʟʟ
 
 [@altruistdeviil](https://github.com/altruistdeviil) : ponytown's ᴍɪꜱᴀᴋɪ ᴋᴀᴛꜱᴜᴏ
 
