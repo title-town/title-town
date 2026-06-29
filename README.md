@@ -91,7 +91,7 @@
 
 [@decolita](https://github.com/decolita) : ponytown's ᴄʜɪʟʟɪ ᴘᴇᴘᴘᴇʀ ᴄᴏᴏᴋɪᴇ
 
-[@demonoffiight](https://github.com/decolita) : ponytown's ꜱʜɪɴɪᴄʜɪ ᴋᴜᴅᴏ
+[@demonoffiight](https://github.com/demonoffiight) : ponytown's ꜱʜɪɴɪᴄʜɪ ᴋᴜᴅᴏ
 
 [@derpluna](https://github.com/derpluna) : ponytown's ᴍᴇɢᴀᴛʀᴏɴ
 
