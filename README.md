@@ -263,6 +263,8 @@
 
 [@ov3rca5t](https://github.com/ov3rca5t) : ponytown's ᴄᴏɴᴛʀᴀᴄᴛᴇᴇ
 
+[@pantaloneirl](https://github.com/pantaloneirl) : ponytown's ᴘᴀɴᴛᴀʟᴏɴᴇ
+
 [@pawfectangel](https://github.com/pawfectangel) : ponytown's ᴍɪᴋᴀꜱᴀ ᴀᴄᴋᴇʀᴍᴀɴ
 
 [@pawnresearch](https://github.com/pawnresearch) : ponytown's ᴛᴀᴍꜱʏ ᴄᴀɪɴᴇꜱ
