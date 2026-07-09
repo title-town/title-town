@@ -25,7 +25,7 @@
 
 [@aesvic](https://github.com/aesvic) : ponytown's ᴠᴇʀɪᴛʏ
 
-[@akchouu](https://github.com/akpdox) : ponytown's ᴋᴏʀɪᴛᴏʀᴀ
+[@akchouu](https://github.com/akchouu) : ponytown's ᴋᴏʀɪᴛᴏʀᴀ
 
 [@akpdox](https://github.com/akpdox) : ponytown's ɴᴀɢɪᴛᴏ ᴋᴏᴍᴀᴇᴅᴀ
 
