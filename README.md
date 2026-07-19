@@ -474,5 +474,3 @@
 [@yvoisen](https://github.com/yvoisen) : ponytown's ʀᴇɢᴇᴄᴛ
 
 [@zandiik](https://github.com/zandiik) : ponytown's ᴅᴏᴛᴛᴏʀᴇ
-
-[@zt4r-z](https://github.com/zt4r-z) : ponytown's ᴘᴀɴᴅᴇᴍᴏɴɪᴜᴍ
