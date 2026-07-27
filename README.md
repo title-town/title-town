@@ -578,7 +578,7 @@
 
 [@xaden6](https://github.com/xaden6) : ponytown's ruko yokune
 
-[@xaplastcore](https://github.com/xa4vi) : ponytown's orion pax
+[@xaplastcore](https://github.com/xaplastcore) : ponytown's orion pax
 
 [@xeijirou](https://github.com/xeijirou) : ponytown's eijirou kirishima
 
