@@ -28,6 +28,8 @@
 
 [@4sail](https://github.com/4sail) : ponytown's valkyrie
 
+[@5aimatsu](https://github.com/5aimatsu) : ponytown's kaede akamatsu
+
 [@acxersonnellino](https://github.com/acxersonnellino) : ponytown's leon kennedy
 
 [@aesvic](https://github.com/aesvic) : ponytown's verity
@@ -46,9 +48,11 @@
 
 [@angeliesz](https://github.com/angeliesz) : ponytown's draco malfoy
 
+[@antlerqueen](https://github.com/antlerqueen) : ponytown's veronica sawyer
+
 [@aphruseng](https://github.com/aphruseng) : ponytown's bec noir
 
-[@artfufu](https://github.com/Artfufu) : ponytown's fufu
+[@artfufu](https://github.com/Artfufu) : ponytown's fufu/noli
 
 [@asrieluo](https://github.com/ASRIELUO) : ponytown's ribbit
 
