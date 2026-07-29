@@ -324,8 +324,6 @@
 
 [@marikinonline4](https://github.com/marikinonline4) : ponytown's slingshot
 
-[@meddycarrot](https://github.com/meddycarrot) : ponytown's medkit
-
 [@meetc00perative](https://github.com/meetc00perative) : ponytown's scp 035
 
 [@meowsael](https://github.com/meowsael) : ponytown's licorice cookie
@@ -438,6 +436,8 @@
 
 [@riddledbatz](https://github.com/riddledbatz) : ponytown's riddler
 
+[@ringmasterai](https://github.com/ringmasterai) : ponytown's caine
+
 [@ruskromas](https://github.com/ruskromas) : ponytown's john wick
 
 [@rxquiemsl](https://github.com/rxquiems) : ponytown's jill valentine
@@ -535,6 +535,8 @@
 [@trevphilips](https://github.com/trevphilips) : ponytown's leland coyle
 
 [@tricoiour](https://github.com/tricoiour) : ponytown's jophiel
+
+[@trueeyecoremedkit](https://github.com/trueeyecoremedkit) : ponytown's medkit
 
 [@twixxel-lessgo](https://github.com/twixxel-lessgo) : ponytown's twixxel
 
