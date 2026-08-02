@@ -251,8 +251,6 @@ thank you all so so much for your patience and support, and i apologise again fo
 
 [@gilliontidestrider](https://github.com/GILLIONTIDESTRIDER) : ponytown's gillion tidestrider
 
-[@glamorama](https://github.com/glamorama) : ponytown's mequot
-
 [@glistenn](https://github.com/glistenn) : ponytown's glisten the mirror
 
 [@groxling](https://github.com/groxling) : ponytown's groxmc
@@ -541,8 +539,6 @@ thank you all so so much for your patience and support, and i apologise again fo
 
 [@rxquiemsl](https://github.com/rxquiems) : ponytown's jill valentine
 
-[@rylandsgrace](https://github.com/rylandsgrace) : ponytown's ryland grace
-
 [@ryomxnsukuna](https://github.com/ryomxnsukuna) : ponytown's sukuna
 
 [@s3ash0res](https://github.com/s3ash0res) : ponytown's edd eddsworld
@@ -680,6 +676,8 @@ thank you all so so much for your patience and support, and i apologise again fo
 [@weltita](https://github.com/weltita) : ponytown's perona
 
 [@westalis](https://github.com/westalis) : ponytown's loid forger
+
+[@whokilledmarkiplier](https://github.com/whokilledmarkiplier) : ponytown's ryland grace
 
 [@winebullets](https://github.com/winebullets) : ponytown's beast dazai
 
