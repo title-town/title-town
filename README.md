@@ -553,7 +553,7 @@ thank you all so so much for your patience and support, and i apologise again fo
 
 [@seraphlazer](https://github.com/seraphlazer) : ponytown's hyperlaser
 
-[@shellzyfossilzianz](https://github.com/shellzyfossilzianz) : ponytown's one tpot
+[@shellzyfossilzianz](https://github.com/shellzyfossilzianz) : ponytown's three bfdi
 
 [@shurilong](https://github.com/shurilong) : ponytown's coil
 
@@ -563,7 +563,7 @@ thank you all so so much for your patience and support, and i apologise again fo
 
 [@silly-dotcom](https://github.com/silly-dotcom) : ponytown's oppenheimer
 
-[@simon-henriksson](https://github.com/sinisterlament) : ponytown's simon (COF)
+[@simon-henriksson](https://github.com/simon-henriksson) : ponytown's simon (COF)
 
 [@sinisterlament](https://github.com/sinisterlament) : ponytown's averythemayo
 
