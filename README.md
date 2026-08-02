@@ -537,7 +537,7 @@ thank you all so so much for your patience and support, and i apologise again fo
 
 [@romerlca](https://github.com/romerlca) : ponytown's alfred f jones
 
-[@ruskromas](https://github.com/ruskromas) : ponytown's john wick
+[@ruskaromas](https://github.com/ruskaromas) : ponytown's john wick
 
 [@rxquiemsl](https://github.com/rxquiems) : ponytown's jill valentine
 
