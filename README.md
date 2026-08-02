@@ -609,6 +609,8 @@ thank you all so so much for your patience and support, and i apologise again fo
 
 [@teary-eyed](https://github.com/teary-eyed) : ponytown's asuka langley
 
+[@thatorangecatt](https://github.com/thatorangecatt) : ponytown's grace wrenwood
+
 [@thatroyalbeast](https://github.com/thatroyalbeast) : ponytown's beast
 
 [@thehacker7n7](https://github.com/thehacker7n7) : ponytown's thatmob
