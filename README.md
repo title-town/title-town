@@ -475,6 +475,8 @@ thank you all so so much for your patience and support, and i apologise again fo
 
 [@pantaloneirl](https://github.com/pantaloneirl) : ponytown's pantalone
 
+[@parameowia](https://github.com/parameowia) : ponytown's skittles
+
 [@partypuppyy](https://github.com/partypuppyy) : ponytown's lolbit
 
 [@pastellcloudyy](https://github.com/pastellcloudyy) : ponytown's pretence
