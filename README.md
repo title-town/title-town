@@ -151,8 +151,6 @@ thank you all so so much for your patience and support, and i apologise again fo
 
 [@darlingcountess](https://github.com/darlingcountess) : ponytown's countess
 
-[@deadmenlay](https://github.com/deadmenlay) : ponytown's ivan
-
 [@dearcheshire](https://github.com/dearcheshire) : ponytown's shin sei
 
 [@deariamb](https://github.com/deariamb) : ponytown's woody bfdi
