@@ -115,8 +115,6 @@
 
 [@brittlestars](https://github.com/brittlestars) : ponytown's agott arklaum
 
-[@budgqie](https://github.com/budgqie) : ponytown's reddoons
-
 [@c0rv1dd13d](https://github.com/c0rv1dd13d) : ponytown's tailgate
 
 [@c1nnam0n-to4st-crunch](https://github.com/c1nnam0n-to4st-crunch) : ponytown's mitsuri kanroji
@@ -355,7 +353,7 @@
 
 [@infinitesources](https://github.com/infinitesources) : ponytown's chino moreno
 
-[@invismafia](https://github.com/invismafia) : ponytown's reddooms
+[@invismafia](https://github.com/invismafia) : ponytown's reddoons
 
 [@iordzuko](https://github.com/iordzuko) : ponytown's zuko
 
