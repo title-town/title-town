@@ -12,14 +12,16 @@
 
 <p align="center">READ THE RULES ON THE STRAWPAGE! Ou<
 
-<p align="center">update 08/02/26: heya guys uh... i added as many people as i could until my laptop crashed. i was literally trying not to scream because it was at least 3am, 4 hours of adding names... i am literally so so so sorry i need a new one :( please lmk if you weren't added and ill add you asap! i added some canvases in my strawpage for all you little artists out there. i also wanted to mention, i will occasionally go on ponytown and sit as our mascot candi! if you see me, don't be afraid to c+h or whisper me to nominate yourself/somebody! ill mostly be nonverbal :)
-thank you all so so much for your patience and support, and i apologise again for all the technical difficulties! :,) this took a while and i added all the people i could remember!
+<p align="center">update 08/04/26: added more people! for people worried about my mental health, please stop - i mean this in the nicest way possible, but i am completely fine and my mental state is none of your concern, and it is not 'fragile', might i add. my updates are not meant to guilt trip anyone either. i appreciate the support though. due to it being summer break and i have nothing else to do i'll be adding more people in my free time. my parents got me a network adapter for my laptop so crashes will hopefully stop. :)
 
 <p align="center"><img width="140" height="168" alt="pony-town-candi - c+h-lie-4x" src="https://github.com/user-attachments/assets/ad5b2829-c821-45b9-a1e1-ef66d82673f9" />
+<p align="center">c+h freely
 
 
 
 <p align="center"><img width="220" height="87" alt="image" src="https://github.com/user-attachments/assets/b6e6a14d-5f1d-48a1-a5bd-e34af183fb39" />
+
+[@01-800-papu](https://github.com/01-800-papu) : ponytown's aldo_geo
 
 [@01yaoimaster](https://github.com/01yaoimaster) : ponytown's normal npc (deltarune)
 
@@ -55,7 +57,7 @@ thank you all so so much for your patience and support, and i apologise again fo
 
 [@aliceinwonderiand](https://github.com/aliceinwonderiand) : ponytown's alice (in wonderland)
 
-[@alnstslop](https://github.com/alnstslop) : ponytown's till
+[@alnstslop](https://github.com/alnstslop) : ponytown's mizi
 
 [@altruistdeviil](https://github.com/altruistdeviil) : ponytown's misaki katsuo
 
@@ -79,7 +81,13 @@ thank you all so so much for your patience and support, and i apologise again fo
 
 [@autopsiedgore](https://github.com/autopsiedgore) : ponytown's doma
 
+[@azpyiel](https://github.com/azpyiel) : ponytown's golden cheese cookie
+
+[@bannysuperman](https://github.com/bannysuperman) : ponytown's clark kent
+
 [@bassiebloomingtonofficial](https://github.com/bassiebloomingtonofficial) : ponytown's bassie bloomington
+
+[@bastetngeb](https://github.com/bastetngeb) : ponytown's doppio vinegar
 
 [@beauty-clown](https://github.com/beauty-clown) : ponytown's tricky
 
@@ -87,9 +95,13 @@ thank you all so so much for your patience and support, and i apologise again fo
 
 [@blame-john](https://github.com/blame-john) : ponytown's telamon
 
+[@blehpigsterr](https://github.com/blehpigsterr) : ponytown's dee shvagenbagen
+
 [@blindfoldbandits](https://github.com/BlindfoldBandits) : ponytown's manepear
 
 [@bluudude](https://github.com/bluudude) : ponytown's bluudud
+
+[@boblovessubaru](https://github.com/boblovessubaru) : ponytown's spongebob
 
 [@boosferholic](https://github.com/boosferholic) : ponytown's boosfer
 
@@ -101,7 +113,13 @@ thank you all so so much for your patience and support, and i apologise again fo
 
 [@brittlestars](https://github.com/brittlestars) : ponytown's agott arklaum
 
+[@budgqie](https://github.com/budgqie) : ponytown's reddoons
+
 [@c0rv1dd13d](https://github.com/c0rv1dd13d) : ponytown's tailgate
+
+[@c1nnam0n-to4st-crunch](https://github.com/c1nnam0n-to4st-crunch) : ponytown's mitsuri kanroji
+
+[@cattypillaar](https://github.com/cattypillaar) : ponytown's elquackity
 
 [@cannivore](https://github.com/cannivore) : ponytown's yami yugi
 
@@ -109,11 +127,19 @@ thank you all so so much for your patience and support, and i apologise again fo
 
 [@ccaftonirl](https://github.com/ccaftonirl) : ponytown's cc afton
 
+[@ccggmadness](https://github.com/ccggmadness) : ponytown's gigi murin
+
+[@ceekom](https://github.com/ceekom) : ponytown's takemichi
+
+[@cherriejam](https://github.com/cherriejam) : ponytown's luna club
+
 [@chevyimpalas67](https://github.com/chevyimpalas67) : ponytown's dean winchester
 
 [@chick-habit](https://github.com/chick-habit) : ponytown's murdoc niccals
 
 [@chickenroulette](https://github.com/chickenroulette) : ponytown's shedletsky
+
+[@cindercrestsglory](https://github.com/cindercrestsglory) : ponytown's lloyd garmadon
 
 [@ciownzy](https://github.com/cIownzy) : ponytown's looey the balloon
 
@@ -128,6 +154,8 @@ thank you all so so much for your patience and support, and i apologise again fo
 [@coal-irl](https://github.com/coal-irl) : ponytown's coal the pet rock
 
 [@colorfulmush](https://github.com/colorfulmush) : ponytown's d3rlord3
+
+[@computerfanaticc](https://github.com/computerfanaticc) : ponytown's harley sawyer
 
 [@computerrtime](https://github.com/computerrtime) : ponytown's dave strider
 
@@ -149,7 +177,11 @@ thank you all so so much for your patience and support, and i apologise again fo
 
 [@cybermiyano](https://github.com/cybermiyano) : ponytown's nico rosberg
 
+[@darksanctuary](https://github.com/darksanctuary) : ponytown's roaring knight
+
 [@darlingcountess](https://github.com/darlingcountess) : ponytown's countess
+
+[@deadp0et](https://github.com/deadp0et) : ponytown's present mic
 
 [@dearcheshire](https://github.com/dearcheshire) : ponytown's shin sei
 
@@ -169,15 +201,23 @@ thank you all so so much for your patience and support, and i apologise again fo
 
 [@dimofyyy](https://github.com/dimofyyy) : ponytown's naparitzel
 
+[@disorderlyfashion](https://github.com/disorderlyfashion) : ponytown's 2012 raphael
+
 [@divinemachines](https://github.com/divinemachines) : ponytown's foolishg
 
+[@dlsasterology](https://github.com/dlsasterology) : ponytown's kunigami rensuke
+
 [@doctorfunkbeat](https://github.com/doctorfunkbeat) : ponytown's meika hime
+
+[@donniesgaptooth](https://github.com/donniesgaptooth) : ponytown's darth maul
 
 [@dor-fic](https://github.com/dor-fic) : ponytown's glitchy red
 
 [@dr-vanta](https://github.com/dr-vanta) : ponytown's bunnyx
 
 [@drunkenlament](https://github.com/drunkenlament) : ponytown's england
+
+[@dusclopsisgoated](https://github.com/dusclopsisgoated) : ponytown's q!jaiden
 
 [@dumbasseel](https://github.com/dumbasseel) : ponytown's eel cookie
 
@@ -221,13 +261,21 @@ thank you all so so much for your patience and support, and i apologise again fo
 
 [@filthco](https://github.com/filthco) : ponytown's squiddo
 
+[@finnfxnn](https://github.com/finnfxnn) : ponytown's finn the fishbowl
+
 [@firebrandd](https://github.com/firebrandd) : ponytown's firebrand
+
+[@fishyz-cake](https://github.com/fishyz-cake) : ponytown's mahito
 
 [@flowerhusbands](https://github.com/flowerhusbands) : ponytown's solidaritygaming
 
 [@forcednature](https://github.com/forcednature) : ponytown's ass pancakes
 
+[@fourthdoctor](https://github.com/fourthdoctor) : ponytown's timelord
+
 [@foxtartaglia](https://github.com/foxtartaglia) : ponytown's childe
+
+[@frankieroirl](https://github.com/frankieroirl) : ponytown's frank iero
 
 [@freakedoutboy](https://github.com/freakedoutboy) : ponytown's 2012 michelangelo
 
@@ -243,7 +291,11 @@ thank you all so so much for your patience and support, and i apologise again fo
 
 [@gamblersi](https://github.com/gamblersi) : ponytown's chance
 
+[@gardenofparadisaea](https://github.com/gardenofparadisaea) : ponytown's kaveh
+
 [@gaylukas](https://github.com/gaylukas) : ponytown's lukas mcsm
+
+[@getjinx3d](https://github.com/getjinx3d) : ponytown's vi
 
 [@gfpaw](https://github.com/gfpaw) : ponytown's cutiespace
 
@@ -285,6 +337,8 @@ thank you all so so much for your patience and support, and i apologise again fo
 
 [@iamdanhausen](https://github.com/iamdanhausen) : ponytown's dan hausen
 
+[@ianishuser](https://github.com/ianishuser) : ponytown's harken
+
 [@iiadoreyouu](https://github.com/iiadoreyouu) : ponytown's tom eddsworld
 
 [@ilikegeodes](https://github.com/ilikegeodes) : ponytown's pet stealer
@@ -292,6 +346,8 @@ thank you all so so much for your patience and support, and i apologise again fo
 [@ilovekitt](https://github.com/ilovekitt) : ponytown's mina aishido
 
 [@ilovesupermanz](https://github.com/ilovesupermanz) : ponytown's kon-el
+
+[@ilyreigen](https://github.com/ilyreigen) : ponytown's reigen arataka
 
 [@incubaby](https://github.com/incubaby) : ponytown's azazel
 
@@ -357,9 +413,13 @@ thank you all so so much for your patience and support, and i apologise again fo
 
 [@kiwiconicc](https://github.com/kiwiconicc) : ponytown's kusuo saiki
 
+[@kniferrific](https://github.com/kniferrific) : ponytown's craig tucker
+
 [@knuckl3z](https://github.com/knuckl3z) : ponytown's vanilla the rabbit
 
 [@koraaline](https://github.com/koraaline) : ponytown's obey me! fan
+
+[@kvifed](https://github.com/kvifed) : ponytown's makarov
 
 [@lawrle](https://github.com/LAWRlE) : ponytown's lawrie
 
@@ -373,11 +433,17 @@ thank you all so so much for your patience and support, and i apologise again fo
 
 [@loosenbuttons](https://github.com/loosenbuttons) : ponytown's kimi raikkomen
 
+[@lostcxuse](https://github.com/lostcxuse) : ponytown's nezoshoki
+
 [@lovelett3r](https://github.com/lovelett3r) : ponytown's caporegime
+
+[@loveruffle](https://github.com/loveruffle) : ponytown's isagi yoichi
 
 [@lovveblossoms](https://github.com/lovveblossoms) : ponytown's katie b
 
 [@lronmary](https://github.com/lronmary) : ponytown's actor mark
+
+[@luckofthegambler](https://github.com/luckofthegambler) : ponytown's yatta the pinata
 
 [@lynxcified](https://github.com/lynxcified) : ponytown's black noir
 
@@ -401,6 +467,8 @@ thank you all so so much for your patience and support, and i apologise again fo
 
 [@metailver](https://github.com/metailver) : ponytown's silver the hedgehog
 
+[@meteoroiogist](https://github.com/meteoroiogist) : ponytown's vincent whittman
+
 [@milliesaxe](https://github.com/milliesaxe) : ponytown's sienna shaw
 
 [@mimisua](https://github.com/mimisua) : ponytown's lily lovebraids
@@ -410,6 +478,8 @@ thank you all so so much for your patience and support, and i apologise again fo
 [@mirroredbeauty](https://github.com/mirroredbeauty) : ponytown's badware
 
 [@misfortunes-s](https://github.com/misfortunes-s) : ponytown's ghost simon riley
+
+[@misteria0](https://github.com/misteria0) : ponytown's kenny mccormick
 
 [@mlgkent](https://github.com/mlgkent) : ponytown's jon kent
 
@@ -430,6 +500,10 @@ thank you all so so much for your patience and support, and i apologise again fo
 [@murdocklaw](https://github.com/murdocklaw) : ponytown's matt murdock
 
 [@muzzledpup](https://github.com/muzzledpup) : ponytown's jax
+
+[@mxuniverse](https://github.com/mxuniverse) : ponytown's rose quartz
+
+[@mydigitalescape](https://github.com/mydigitalescape) : ponytown's robert chase
 
 [@myshghoul](https://github.com/myshghoul) : ponytown's william birkin
 
@@ -461,7 +535,13 @@ thank you all so so much for your patience and support, and i apologise again fo
 
 [@obsessedgojo](https://github.com/obsessedgojo) : ponytown's dabi
 
+[@ojisans](https://github.com/ojisans) : ponytown's youji sakiyama
+
 [@olliverzzfailed](https://github.com/olliverzzfailed) : ponytown's flamefrags
+
+[@oncology-angel](https://github.com/oncology-angel) : ponytown's alexander hamilton
+
+[@orangedeltarune](https://github.com/orangedeltarune) : ponytown's lookout3d
 
 [@orchestrafui](https://github.com/orchestrafui) : ponytown's artful
 
@@ -469,7 +549,11 @@ thank you all so so much for your patience and support, and i apologise again fo
 
 [@ov3rca5t](https://github.com/ov3rca5t) : ponytown's contractee
 
+[@p0mef1ore](https://github.com/p0mef1ore) : ponytown's cater diamond
+
 [@p1nkpo1son](https://github.com/p1nkpo1son) : ponytown's vinsmoke reiju
+
+[@page-sana](https://github.com/page-sana) : ponytown's emil mesmer
 
 [@pale-garden](https://github.com/pale-garden) : ponytown's swight
 
@@ -485,6 +569,8 @@ thank you all so so much for your patience and support, and i apologise again fo
 
 [@pawnresearch](https://github.com/pawnresearch) : ponytown's tamsy caines
 
+[@perishallmortals](https://github.com/perishallmortals) : ponytown's noelle holiday
+
 [@piehiker](https://github.com/piehiker) : ponytown's ze
 
 [@pirate-freak](https://github.com/pirate-freak) : ponytown's captain jack sparrow
@@ -497,6 +583,8 @@ thank you all so so much for your patience and support, and i apologise again fo
 
 [@princesevvy](https://github.com/princesevvy) : ponytown's severus snape
 
+[@princezammiest](https://github.com/princezammiest) : ponytown's green (among us show)
+
 [@princesszam](https://github.com/princesszam) : ponytown's princezam
 
 [@promiseduo](https://github.com/promiseduo) : ponytown's jadenman
@@ -506,6 +594,10 @@ thank you all so so much for your patience and support, and i apologise again fo
 [@pupfies](https://github.com/pupfies) : ponytown's wifies
 
 [@pupkang](https://github.com/pupkang) : ponytown's paul mccartney
+
+[@pupsamoyed](https://github.com/pupsamoyed) : ponytown's lu feng
+
+[@pursuitcore](https://github.com/pursuitcore) : ponytown's bendy
 
 [@putmetorestimnotyourstosave](https://github.com/putmetorestimnotyourstosave) : ponytown's vanny
 
@@ -529,7 +621,15 @@ thank you all so so much for your patience and support, and i apologise again fo
 
 [@redvandl](https://github.com/redvandl) : ponytown's michael jackson
 
+[@reggression](https://github.com/reggression) : ponytown's bunny iglesias
+
 [@regoregitatedsacrifice](https://github.com/regoregitatedsacrifice) : ponytown's katsuki bakugo
+
+[@reo-mikage](https://github.com/reo-mikage) : ponytown's reo mikage
+
+[@replicaofaffection](https://github.com/replicaofaffection) : ponytown's fukua
+
+[@retribite](https://github.com/retribite) : ponytown's pinkamena
 
 [@riddledbatz](https://github.com/riddledbatz) : ponytown's riddler
 
@@ -587,6 +687,8 @@ thank you all so so much for your patience and support, and i apologise again fo
 
 [@spectralsanctuary](https://github.com/spectralsanctuary) : ponytown's ray stantz
 
+[@ssamuchae](https://github.com/ssamuchae) : ponytown's bluey
+
 [@star-seth](https://github.com/star-seth) : ponytown's satoru gojo
 
 [@strin-g](https://github.com/strin-g) : ponytown's string gummy cookie
@@ -603,11 +705,15 @@ thank you all so so much for your patience and support, and i apologise again fo
 
 [@sweetmeiodys](https://github.com/SweetMeIodys) : ponytown's shelly fossilian
 
+[@swimmypol](https://github.com/swimmypol) : ponytown's evil morty
+
 [@sxshaae](https://github.com/sxshaae) : ponytown's sonic the hedgehog
 
 [@tamonsbside](https://github.com/tamonsbside) : ponytown's purpled
 
 [@teary-eyed](https://github.com/teary-eyed) : ponytown's asuka langley
+
+[@tennaville](https://github.com/tennaville) : ponytown's mr ant tenna
 
 [@thatorangecatt](https://github.com/thatorangecatt) : ponytown's grace wrenwood
 
@@ -661,11 +767,15 @@ thank you all so so much for your patience and support, and i apologise again fo
 
 [@verdlct](https://github.com/verdlct) : ponytown's the convict
 
+[@versatilelfoof](https://github.com/versatilelfoof) : ponytown's hollyleaf
+
 [@viimsey](https://github.com/viimsey) : ponytown's viperion
 
 [@vil-ily](https://github.com/vil-ily) : ponytown's rook hunt
 
 [@viltrume](https://github.com/viltrume) : ponytown's homelander
+
+[@vistaparadox](https://github.com/vistaparadox) : ponytown's wind0wsvista
 
 [@vlxxen](https://github.com/VlXXEN) : ponytown's shrubi
 
@@ -674,6 +784,8 @@ thank you all so so much for your patience and support, and i apologise again fo
 [@vysters](https://github.com/vysters) : ponytown's v
 
 [@war-paint](https://github.com/war-paint) : ponytown's luna lovegood
+
+[@waynesheir](https://github.com/waynesheir) : ponytown's damian wayne
 
 [@weepingarchangel](https://github.com/weepingarchangel) : ponytown's marshall lee
 
@@ -709,11 +821,11 @@ thank you all so so much for your patience and support, and i apologise again fo
 
 [@yaasuhiro](https://github.com/yaasuhiro) : ponytown's yasuhiro hagakure
 
-[@yaoig0d](https://github.com/yaoig0d) : ponytown's youji sakiyama
-
 [@yaoiliker](https://github.com/yaoiliker) : ponytown's stan marsh
 
 [@yubelsrevenge](https://github.com/yubelsrevenge) : ponytown's judai yuki
+
+[@yunsillyyun](https://github.com/yunsillyyun) : ponytown's hong lu
 
 [@yurislop](https://github.com/yurislop) : ponytown's grian
 
