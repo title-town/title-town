@@ -605,6 +605,8 @@
 
 [@qnakin](https://github.com/qnakin) : ponytown's anakin skywalker
 
+[@quickandsilver](https://github.com/quickandsilver) : ponytown's yelena
+
 [@r0drick-heffley](https://github.com/r0drick-heffley) : ponytown's rodrick heffley
 
 [@rakviyem](https://github.com/rakviyem) : ponytown's spring bonnie
