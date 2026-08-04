@@ -99,6 +99,8 @@
 
 [@blindfoldbandits](https://github.com/BlindfoldBandits) : ponytown's manepear
 
+[@bludhavenn](https://github.com/bludhavenn) : ponytown's nightwing
+
 [@bluudude](https://github.com/bluudude) : ponytown's bluudud
 
 [@boblovessubaru](https://github.com/boblovessubaru) : ponytown's spongebob
@@ -637,6 +639,8 @@
 
 [@ringmasterai](https://github.com/ringmasterai) : ponytown's caine
 
+[@rinsagi](https://github.com/rinsagi) : ponytown's amamiya ren
+
 [@romerlca](https://github.com/romerlca) : ponytown's alfred f jones
 
 [@ruskaromas](https://github.com/ruskaromas) : ponytown's john wick
@@ -788,8 +792,6 @@
 [@war-paint](https://github.com/war-paint) : ponytown's luna lovegood
 
 [@waynesheir](https://github.com/waynesheir) : ponytown's damian wayne
-
-[@weepingarchangel](https://github.com/weepingarchangel) : ponytown's marshall lee
 
 [@weltita](https://github.com/weltita) : ponytown's perona
 
