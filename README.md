@@ -12,7 +12,7 @@
 
 <p align="center">READ THE RULES ON THE STRAWPAGE! Ou<
 
-<p align="center">update 08/04/26: added more people! for people worried about my mental health, please stop - i mean this in the nicest way possible, but i am completely fine and my mental state is none of your concern, and it is not 'fragile', might i add. my updates are not meant to guilt trip anyone either. i appreciate the support though. due to it being summer break and i have nothing else to do i'll be adding more people in my free time. my parents got me a network adapter for my laptop so crashes will hopefully stop. :)
+<p align="center">update 08/04/26: added more people 2.0! for people worried about my mental health, please stop - i mean this in the nicest way possible, but i am completely fine and my mental state is none of your concern, and it is not 'fragile', might i add. my updates are not meant to guilt trip anyone either. i appreciate the support though. due to it being summer break and i have nothing else to do i'll be adding more people in my free time. my parents got me a network adapter for my laptop so crashes will hopefully stop. :)
 
 <p align="center"><img width="140" height="168" alt="pony-town-candi - c+h-lie-4x" src="https://github.com/user-attachments/assets/ad5b2829-c821-45b9-a1e1-ef66d82673f9" />
 <p align="center">c+h freely
@@ -355,8 +355,6 @@
 
 [@infinitesources](https://github.com/infinitesources) : ponytown's chino moreno
 
-[@inumakisbiggestfan](https://github.com/inumakisbiggestfan) : ponytown's akechi
-
 [@invismafia](https://github.com/invismafia) : ponytown's reddooms
 
 [@iordzuko](https://github.com/iordzuko) : ponytown's zuko
@@ -393,6 +391,8 @@
 
 [@jiraiki](https://github.com/jiraiki) : ponytown's columbina
 
+[@jokechi](https://github.com/jokechi) : ponytown's goro akechi
+
 [@joosbocks](https://github.com/joosbocks) : ponytown's green (among us show)
 
 [@jrwilliamgrey-glitch](https://github.com/jrwilliamgrey-glitch) : ponytown's william afton
@@ -427,7 +427,11 @@
 
 [@lazikoly](https://github.com/lazikoly) : ponytown's shadow the hedgehog
 
+[@leosvincent](https://github.com/leosvincent) : ponytown's leos vincent
+
 [@lightstarved](https://github.com/lightstarved) : ponytown's venomshank
+
+[@lilsweeterlilbitter](https://github.com/lilsweeterlilbitter) : ponytown's zombie jason todd
 
 [@lobogirl](https://github.com/lobogirl) : ponytown's lobo
 
@@ -462,6 +466,8 @@
 [@marikinonline4](https://github.com/marikinonline4) : ponytown's slingshot
 
 [@marsinvaded](https://github.com/marsinvaded) : ponytown's drift
+
+[@martycorn](https://github.com/martycorn) : ponytown's vampire cookie
 
 [@meetc00perative](https://github.com/meetc00perative) : ponytown's scp 035
 
@@ -619,6 +625,8 @@
 
 [@ravensev](https://github.com/ravensev) : ponytown's sunny omori
 
+[@re0-mikage](https://github.com/re0-mikage) : ponytown's reo mikage
+
 [@real-sonic](https://github.com/real-sonic) : ponytown's metal sonic
 
 [@realdustsans](https://github.com/realdustsans) : ponytown's dust sans
@@ -628,8 +636,6 @@
 [@reggression](https://github.com/reggression) : ponytown's bunny iglesias
 
 [@regoregitatedsacrifice](https://github.com/regoregitatedsacrifice) : ponytown's katsuki bakugo
-
-[@reo-mikage](https://github.com/reo-mikage) : ponytown's reo mikage
 
 [@replicaofaffection](https://github.com/replicaofaffection) : ponytown's fukua
 
@@ -653,6 +659,8 @@
 
 [@s4wn00bz](https://github.com/s4wn00bz) : ponytown's saw noob
 
+[@sc4r7v4mp1r3](https://github.com/sc4r7v4mp1r3) : ponytown's fischl
+
 [@sammiewinchester](https://github.com/sammiewinchester) : ponytown's sam winchester
 
 [@scottishtwinengines](https://github.com/scottishtwinengines) : ponytown's thomas the tank engine
@@ -660,6 +668,8 @@
 [@sebvsene](https://github.com/sebvsene) : ponytown's jason todd
 
 [@seraphlazer](https://github.com/seraphlazer) : ponytown's hyperlaser
+
+[@shappushan](https://github.com/shappushan) : ponytown's killdroid
 
 [@shellzyfossilzianz](https://github.com/shellzyfossilzianz) : ponytown's three bfdi
 
@@ -785,6 +795,8 @@
 
 [@vlxxen](https://github.com/VlXXEN) : ponytown's shrubi
 
+[@voltaction](https://github.com/voltaction) : ponytown's watarai hibari
+
 [@voxmania](https://github.com/voxmania) : ponytown's vox
 
 [@vysters](https://github.com/vysters) : ponytown's v
@@ -824,6 +836,8 @@
 [@xolariis](https://github.com/xolariis) : ponytown's berdly
 
 [@yaasuhiro](https://github.com/yaasuhiro) : ponytown's yasuhiro hagakure
+
+[@yaoikat](https://github.com/yaoikat) : ponytown's armand (vampire chronicles)
 
 [@yaoiliker](https://github.com/yaoiliker) : ponytown's stan marsh
 
