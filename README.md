@@ -350,7 +350,7 @@
 
 [@horroryaoi](https://github.com/horroryaoi) : ponytown's yuji itadori
 
-[@hound-of-ulster](https://github.com/housepanther) : ponytown's cu chulainn
+[@hound-of-ulster](https://github.com/hound-of-ulster) : ponytown's cu chulainn
 
 [@housepanther](https://github.com/housepanther) : ponytown's azure
 
