@@ -146,7 +146,7 @@
 
 [@cindercrestsglory](https://github.com/cindercrestsglory) : ponytown's lloyd garmadon
 
-[@ciownzy](https://github.com/cIownzy) : ponytown's looey the balloon
+[@ciownzy](https://github.com/cIownzy) : ponytown's minutetech
 
 [@cliffs-inferno](https://github.com/cliffs-inferno) : ponytown's pannacotta fugo
 
